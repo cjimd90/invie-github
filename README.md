@@ -1,2 +1,2 @@
 # invie-github
-Tus mejores guitarras invies-sibles
+Tus mejores guitarras invie-sibles by Cristian Y. Jimenez
